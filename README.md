@@ -1,0 +1,1 @@
+# realvendorpower.ipynb-blob-main-realvendorpower.ipynb
